@@ -1,6 +1,7 @@
 # Almost-Home
-THIS STORY TALKS ABOUT AN ANGLE OF UNNOTICED LOVE OF A GIRL .#NO_TOXIC #NO CUSS WORDS 
-_________________________________________
+THIS STORY TALKS ABOUT AN ANGLE OF UNNOTICED LOVE OF A GIRL .#NO_TOXIC #NO CUSS WORDS #NO_TOXICITY #SAD_ENDING #ALMOST-HOME
+
+__________________________________
 
 # THE THREE  WORDS NEVER SAID 
        
@@ -305,4 +306,4 @@ never knowing someone had loved him enough...
 to lose him without ever asking him to stay.
 
 
-★★★★★★★★★★★★★★★★★★★★★★★
+★★★★★★★★★★★★★★★★★★★★★★
